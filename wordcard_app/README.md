@@ -1,0 +1,1 @@
+# wordcard.mehmonov.uz
